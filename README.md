@@ -1,0 +1,1 @@
+# Simo-AI-Pocket-Trader
